@@ -1,2 +1,0 @@
-# Medo
-Mohamed Abdo
